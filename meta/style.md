@@ -22,5 +22,11 @@ Many find it helpful to conform to a consistent code style, especially when coll
 ### capatilization
 
 
+### titles and subtitles
+
+
 ### legal info
+
+
+### references to entities
 
