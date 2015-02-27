@@ -1,7 +1,12 @@
-## on spirit :: a secular appropriation of the concept of spirit
+## On Spirit :: A Secular Appropriation of the Concept of Spirit
 
 ### outline
- - 
+ - abstract
+ - traditional concepts of spirits
+ - the spirit of minds
+ - the spirit of groups
+	 - the spirit of teams
+ - final
 
-### introduction
+### Abstract
 

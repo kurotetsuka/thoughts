@@ -1,4 +1,4 @@
-## on mind :: the concept of mind and the partial illusion of the self
+## On Mind :: The Concept of Mind and the Partial Illusion of the Self
 
 ### outline
  - the mind is a concept
@@ -7,5 +7,5 @@
  - the self does exist
  - 
 
-### introduction
+### asdf
 
