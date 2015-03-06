@@ -1,6 +1,7 @@
 ## index of contents ( by alphanumeric order )
 
 ### Contents
+ - [big crystalization](texts/big_crystallization.md) :: The Big Crystallization Theory of the End of the Universe
  - [lonely poem](texts/lonely_poem.md) :: Oneness and Noneness
  - [vision](texts/vision.md) :: A Vision for Humanity
  - [on_mind](texts/on_mind.md) :: The concept of mind and the partial illusion of the self
