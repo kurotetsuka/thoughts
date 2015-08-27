@@ -1,16 +1,13 @@
 ## Lonely Poem
 
 ~~~
+Solely in these moments, alone,
 
-Solely in these moments,
+      is the beauty of my
 
-         alone,
+          quiet world
 
-    is the beauty of my
-
-           quiet world
-
-apparent to me
+apparent to me.
 
 
 
@@ -30,7 +27,7 @@ and one becomes many.
 
 But when one is simply one,
 
-           a world slips away,
+         the world slips away,
 
    meaning becomes meaningless,
 
@@ -42,8 +39,9 @@ and one becomes none.
 
 While no one
 
-     may be at peace
+    may be at peace
 
-         with this world,
-perhaps one might.
+        with this world,
+
+perhaps none might.
 ~~~
