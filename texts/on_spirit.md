@@ -1,4 +1,5 @@
-## On Spirit :: A Secular Appropriation of the Concept of Spirit
+## On Spirit
+A Secular Appropriation of the Concept of Spirit
 
 ### outline
  - abstract

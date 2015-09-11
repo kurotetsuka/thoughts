@@ -1,4 +1,4 @@
-## on body :: achieving an understanding of the body and its manipulation
+## On Body
 
 ### outline
  - 

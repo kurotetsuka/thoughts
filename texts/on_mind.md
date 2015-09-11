@@ -1,4 +1,5 @@
-## On Mind :: The Concept of Mind and the Partial Illusion of the Self
+## On Mind
+The Concept of Mind and the Partial Illusion of the Self
 
 ### outline
  - the mind is a concept
