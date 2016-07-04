@@ -1,0 +1,3 @@
+## Love Stories
+
+I can't enjoy love stories anymore. The characters just don't seem real enough. The plots are just too predictable. I know all the different iterations of the story, and the ones I don't know just don't matter, not anymore. I just can't enjoy love stories anymore - they all pale in comparison to my own, and my own is already over...
