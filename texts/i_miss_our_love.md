@@ -21,11 +21,11 @@
 
   I miss the way we loved each other,
          the fire between us -
-             embers of which we still hold
+           the embers of which we still hold
          the tangle of our souls -
-            the knots we'll never unravel,
+           the knots we'll never unravel,
          the bond of our spirit -
-             flames independant yet interlaced.
+           flames independant yet interlaced.
 
   I miss the way you loved me,
          yet through it all,
@@ -36,9 +36,9 @@
          the affect that remains.
 
   You speak my name.
-  A gentle spark ignites,
-  coursing through my body.
+    A gentle spark ignites,
+      coursing through my body.
   Reminicing the storm -
-  I love you all over again.
+    I love you all over again.
 
 ~~~
